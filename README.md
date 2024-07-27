@@ -1,1 +1,1 @@
-# HCMIU_Intern_S3_23-24
+# HCMIU_Internship_S3_23-24
